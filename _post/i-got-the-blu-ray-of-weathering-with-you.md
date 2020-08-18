@@ -19,8 +19,7 @@
 「ピンポーン」
 <img src="img/weathering-with-you.png" width="95%" height="auto">
 はい。これは、やばいやつですね。はい。ちなみに周りに写っているのは『言の葉の庭』などの小説版4冊とか公式ビジュアルガイドとかです。右側の本棚に立てかけてあるのはAmazon.com限定特典の長傘カバー！　これから梅雨だし、大切に使う。
-https://open.spotify.com/show/34bzCauREwvNd6crtm2zaN?si=ya6DpsToTGW0bYmrUkNA-g
-#ゆるふわてとらん
+
 # 早速観た
 ## 本編スタート
 すごい！　映画館で流れてたCMがカットされてる！（ハズキルーペみ）
